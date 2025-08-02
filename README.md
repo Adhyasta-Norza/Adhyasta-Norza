@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Adhyasta Muhammad pradipa
 - 👀 i like Intellegent Techology
-- 🌱 I learning so much about Science, Computing, ENglish and more
+- 🌱 I learning so much about Science, Computing, English and more
 - 😄 16 years old, Birthday in 24/11/2007
 - ⚡ Fun fact: meskipun bisa sains dan fisika, aneh nya saya gak bisa matematika_-
 
